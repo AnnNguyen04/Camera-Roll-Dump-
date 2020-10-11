@@ -1,8 +1,12 @@
-# Japan Trip 2019
+# Three Things You Should do in Japan
 
-## Street
+## Visit the Amime District, Akihabara
 ![The anime district had so many figurine stores](https://raw.githubusercontent.com/AnnNguyen04/Camera-Roll-Dump-/main/anime%20district%20japan.jpeg)
-The anime district had so many figurine stores!
+The anime district has:
+* anime stores
+* manga shops
+* gaming stores
+* figurine stores 
 
 ### Food
 ![The popcorn chicken was so crunchy! YUMMMM](https://github.com/AnnNguyen04/Camera-Roll-Dump-/blob/main/popcorn%20chicken%20meal%20japan.jpeg?raw=true) 
