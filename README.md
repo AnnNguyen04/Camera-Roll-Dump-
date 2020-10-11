@@ -1,4 +1,4 @@
-# Three Things You Should do in Japan
+# Things You Should do in Japan
 
 ## Visit the Anime District, Akihabara
 ![The anime district had so many figurine stores](https://raw.githubusercontent.com/AnnNguyen04/Camera-Roll-Dump-/main/anime%20district%20japan.jpeg)
